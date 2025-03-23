@@ -23,3 +23,5 @@ LinearAlgebraDoneRight2025.03.09.pdf
 
 微积分学教程（第3卷）.М.菲赫金哥尔茨.pdf
 
+通过网盘分享的文件：数字电子技术（第十一版）.pdf
+链接: https://pan.baidu.com/s/1XMfX8HPQ4jeuNOHthoPOzw?pwd=kytj 提取码: kytj
