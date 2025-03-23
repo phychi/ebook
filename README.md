@@ -25,3 +25,6 @@ LinearAlgebraDoneRight2025.03.09.pdf
 
 通过网盘分享的文件：数字电子技术（第十一版）.pdf
 链接: https://pan.baidu.com/s/1XMfX8HPQ4jeuNOHthoPOzw?pwd=kytj 提取码: kytj
+
+通过网盘分享的文件：美 奥本海姆 - 离散时间信号处理（第三版）.pdf
+链接: https://pan.baidu.com/s/1fvYwGtPdpLvJaWDzxnL4EQ?pwd=jr31 提取码: jr31
